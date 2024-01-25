@@ -1,2 +1,0 @@
-# Math_Assignment3
- 
